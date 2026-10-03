@@ -1,0 +1,2 @@
+# premium-wheel-assess-001-antique-wheel-condition-assess
+You're staring at a 200-year-old wagon wheel with questionable structural integrity, but you have no systematic way to document exactly what's wrong with it. Without a clear condition assessment framework, you're guessing at repairs, risking both the artifact and your reputation.  The Antique Wheel Condition Assessment Template transforms vague obs
